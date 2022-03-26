@@ -2,6 +2,6 @@
 >Dont worry be happy!
 
 ### Enthusiasm
-🖥️ Personal Computer Setups ⚽ Football
-🎮 LoL CS:GO
-:guitar: Playing Guitar 
+🖥️ Computer ⚽ Football
+🎮 LoL CS:GO :diving_mask: Swimming
+:guitar: Playing Guitar :film_strip: 
